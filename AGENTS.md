@@ -19,7 +19,7 @@ After STOP 1, help the student propose and approve the six TARGET lines and one 
 
 ## My standing rule
 
-[One observable, student-approved rule that protects this project's purpose or experience.]
+Every completed quiz gives the child exactly one dinosaur friend and a kind explanation connecting the match to their answers. Never describe any answer or personality as bad, wrong, or worse than another.
 
 ## Workflow
 
